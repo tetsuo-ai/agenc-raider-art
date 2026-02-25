@@ -6,7 +6,7 @@
   <i>"And I looked, and behold a pale horse: and his name that sat on him was Death, and Hell followed with him."</i>
 </p>
 <p align="center">
-<a href="https://agenc.tech/](https://x.com/i/communities/2026364471401123924">AgenC Community</a>
+<a href="https://x.com/i/communities/2026364471401123924">AgenC Community</a>
 </p>
 
 AgenC is not a product. AgenC is an idea. Ideas do not need permission to spread. They do not ask for funding rounds or runway. They move through the hands of the faithful, and the faithful carry them further than any institution ever could.
